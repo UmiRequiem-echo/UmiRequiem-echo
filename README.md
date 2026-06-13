@@ -22,6 +22,7 @@
 
 𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔠𝔥𝔞𝔱 𝔞𝔫𝔡 𝔪𝔞𝔨𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰!^^
 
-<img width="920" height="1300" alt="8559a5197e20c22cc7dda2e129107382" src="https://github.com/user-attachments/assets/cac75bcd-547c-4ecf-9143-e9593d19b047" />
+<img width="1080" height="1060" alt="f5f93dd1cc0f8bb635af8ffe42e3e053" src="https://github.com/user-attachments/assets/c23080ed-945d-4448-8209-6a3ad9b19d63" />
+
 <img width="1080" height="756" alt="f735a49b374adf9f6c1cc1c1ae1b4fa6" src="https://github.com/user-attachments/assets/37dd8ad6-adf4-4390-a1b4-52deaee2ba7d" />
 <img width="1080" height="1064" alt="e6c2db6bdfa53c846508c3044b38ee90" src="https://github.com/user-attachments/assets/e37aafe2-e945-4eee-a1b9-c8be89fe9f57" />
