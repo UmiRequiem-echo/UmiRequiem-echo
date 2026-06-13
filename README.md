@@ -2,25 +2,22 @@
 
 ---
 
-ℐ'𝓂 𝒶 𝓂𝓊𝓁𝓉𝒾-𝒻𝒶𝓃𝒹𝑜𝓂 𝓅𝑒𝓇𝓈𝑜𝓃, 𝓎𝑜𝓊 𝒸𝒶𝓃 𝒻𝒾𝓃𝒹 𝓂𝑒 𝒾𝓃 𝓅𝓇𝑒𝓉𝓉𝓎 𝓂𝓊𝒸𝒽 𝒶𝓃𝓎 𝒻𝒶𝓃𝒹𝑜𝓂! ℬ𝓊𝓉 𝓂𝓎 𝒻𝒶𝓋𝑜𝓇𝒾𝓉𝑒 𝓈𝓅𝑜𝓉𝓈 𝒶𝓇𝑒 𝓉𝒽𝑒 𝐹𝑜𝓇𝓈𝒶𝓀𝑒𝓃 𝒶𝓇𝑒𝒶 𝑜𝓇 𝒜𝐹𝒦-𝒾𝓃𝑔 𝓌𝒾𝓉𝒽 𝒻𝓇𝒾𝑒𝓃𝒹𝓈 𝒶𝓉 𝓉𝒽𝑒 𝒷𝑜𝓉𝓉𝑜𝓂-𝓇𝒾𝑔𝒽𝓉 𝒸𝑜𝓇𝓃𝑒𝓇 𝑜𝒻 𝓉𝒽𝑒 𝓂𝒶𝓅.
+I'm a multi-fandom person, you can find me in pretty much any fandom! But my favorite spots are the Forsaken area or AFK-ing with friends at the bottom-right corner of the map.
 
-𝐹𝑒𝑒𝓁 𝒻𝓇𝑒𝑒 𝓉𝑜 𝒸𝑜𝓂𝑒 𝒶𝓃𝒹 𝓈𝒶𝓎 𝒽𝒾!
+Feel free to come and say hi!
 
----
+and I'm a multi-shipper—I pretty much vibe with whatever my friends are into.
 
-𝒶𝓃𝒹 ℐ'𝓂 𝒶 𝓂𝓊𝓁𝓉𝒾-𝓈𝒽𝒾𝓅𝓅𝑒𝓇—ℐ 𝓅𝓇𝑒𝓉𝓉𝓎 𝓂𝓊𝒸𝒽 𝓋𝒾𝒷𝑒 𝓌𝒾𝓉𝒽 𝓌𝒽𝒶𝓉𝑒𝓋𝑒𝓇 𝓂𝓎 𝒻𝓇𝒾𝑒𝓃𝒹𝓈 𝒶𝓇𝑒 𝒾𝓃𝓉𝑜.
+I love joking around, and my humor includes a bit of dark and edgy stuff (just don't take it seriously).
 
-ℐ 𝓁𝑜𝓋𝑒 𝒿𝑜𝓀𝒾𝓃𝑔 𝒶𝓇𝑜𝓊𝓃𝒹, 𝒶𝓃𝒹 𝓂𝓎 𝒽𝓊𝓂𝑜𝓇 𝒾𝓃𝒸𝓁𝓊𝒹𝑒𝓈 𝒶 𝒷𝒾𝓉 𝑜𝒻 𝒹𝒶𝓇𝓀 𝒶𝓃𝒹 𝑒𝒹𝑔𝓎 𝓈𝓉𝓊𝒻𝒻 (𝒿𝓊𝓈𝓉 𝒹𝑜𝓃'𝓉 𝓉𝒶𝓀𝑒 𝒾𝓉 𝓈𝑒𝓇𝒾𝑜𝓊𝓈𝓁𝓎).
+I'm not really a fan of super cold or distant people though, it just makes things awkward for me.
 
-ℐ'𝓂 𝓃𝑜𝓉 𝓇𝑒𝒶𝓁𝓁𝓎 𝒶 𝒻𝒶𝓃 𝑜𝒻 𝓈𝓊𝓅𝑒𝓇 𝒸𝑜𝓁𝒹 𝑜𝓇 𝒹𝒾𝓈𝓉𝒶𝓃𝓉 𝓅𝑒𝑜𝓅𝓁𝑒 𝓉𝒽𝑜𝓊𝑔𝒽, 𝒾𝓉 𝒿𝓊𝓈𝓉 𝓂𝒶𝓀𝑒𝓈 𝓉𝒽𝒾𝓃𝑔𝓈 𝒶𝓌𝓀𝓌𝒶𝓇𝒹 𝒻𝑜𝓇 𝓂𝑒.
+I'm not always looking at the screen 'cause I'm usually playing Roblox, so w2i!
 
----
+If I don't reply, I'm probably sleeping or doing something else.
 
-ℐ'𝓂 𝓃𝑜𝓉 𝒶𝓁𝓌𝒶𝓎𝓈 𝓁𝑜𝑜𝓀𝒾𝓃𝑔 𝒶𝓉 𝓉𝒽𝑒 𝓈𝒸𝓇𝑒𝑒𝓃 '𝒸𝒶𝓊𝓈𝑒 ℐ'𝓂 𝓊𝓈𝓊𝒶𝓁𝓁𝓎 𝓅𝓁𝒶𝓎𝒾𝓃𝑔 ℛ𝑜𝒷𝓁𝑜𝓍, 𝓈𝑜 𝓌2𝒾!
-
-ℐ𝒻 ℐ 𝒹𝑜𝓃'𝓉 𝓇𝑒𝓅𝓁𝓎, ℐ'𝓂 𝓅𝓇𝑜𝒷𝒶𝒷𝓁𝓎 𝓈𝓁𝑒𝑒𝓅𝒾𝓃𝑔 𝑜𝓇 𝒹𝑜𝒾𝓃𝑔 𝓈𝑜𝓂𝑒𝓉𝒽𝒾𝓃𝑔 𝑒𝓁𝓈𝑒.
-
-𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔠𝔥𝔞𝔱 𝔞𝔫𝔡 𝔪𝔞𝔨𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰!^^
+Welcome to chat and make friends!^^
+i'd like a friend who speaks Spanish, since i‘m practicing
 
 <img width="1080" height="1060" alt="f5f93dd1cc0f8bb635af8ffe42e3e053" src="https://github.com/user-attachments/assets/c23080ed-945d-4448-8209-6a3ad9b19d63" />
 
