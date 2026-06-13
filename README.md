@@ -22,10 +22,3 @@
 
 𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔠𝔥𝔞𝔱 𝔞𝔫𝔡 𝔪𝔞𝔨𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰!^^
 
-![IMG_20251101_230515](https://github.com/user-attachments/assets/380259f5-0524-46c6-9e8c-3ceba00a4318)
-
-![4DB49C67B3D30AB567F5D5874041F3B7](https://github.com/user-attachments/assets/ed36f3fb-8d90-44cd-9c90-59ee79b97b49)
-
-![IMG_20251116_123056](https://github.com/user-attachments/assets/3c5bb7d0-4b66-43a1-b324-583067a8d845)
-
-![IMG_20251101_232137](https://github.com/user-attachments/assets/6e6496c8-0f28-49e3-a68e-ef55da21e58c)
