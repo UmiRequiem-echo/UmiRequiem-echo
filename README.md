@@ -15,6 +15,7 @@ I'm not really a fan of super cold or distant people though, it just makes thing
 I'm not always looking at the screen 'cause I'm usually playing Roblox, so w2i!
 
 If I don't reply, I'm probably sleeping or doing something else.
+i hate copycat...plz do not copy me
 
 Welcome to chat and make friends!^^
 i'd like a friend who speaks Spanish, since i‘m practicing
