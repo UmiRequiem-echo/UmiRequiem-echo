@@ -21,6 +21,8 @@ Welcome to chat and make friends!^^
 i'd like a friend who speaks Spanish, since i‘m practicing
 
 <img width="1080" height="1060" alt="f5f93dd1cc0f8bb635af8ffe42e3e053" src="https://github.com/user-attachments/assets/c23080ed-945d-4448-8209-6a3ad9b19d63" />
+<img width="1080" height="1212" alt="IMG_20260619_011111" src="https://github.com/user-attachments/assets/3910c7af-368e-484b-89cb-f7e3460dc848" />
+
 
 <img width="1080" height="756" alt="f735a49b374adf9f6c1cc1c1ae1b4fa6" src="https://github.com/user-attachments/assets/37dd8ad6-adf4-4390-a1b4-52deaee2ba7d" />
 <img width="1080" height="1064" alt="e6c2db6bdfa53c846508c3044b38ee90" src="https://github.com/user-attachments/assets/e37aafe2-e945-4eee-a1b9-c8be89fe9f57" />
