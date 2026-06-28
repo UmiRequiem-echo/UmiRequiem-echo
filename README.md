@@ -6,16 +6,16 @@ I'm a multi-fandom person, you can find me in pretty much any fandom! But my fav
 
 Feel free to come and say hi!
 
-and I'm a multi-shipper—I pretty much vibe with whatever my friends are into.
+and I'm a multi-shipper—I pretty much vibe with whatever my friends are into. i like azuretime heh...
 
-I love joking around, and my humor includes a bit of dark and edgy stuff (just don't take it seriously).
+I love joking around, and my humor includes a bit of dark and edgy stuff **(just don't take it seriously).**
 
 I'm not really a fan of super cold or distant people though, it just makes things awkward for me.
 
 I'm not always looking at the screen 'cause I'm usually playing Roblox, so w2i!
 
 If I don't reply, I'm probably sleeping or doing something else.
-i hate copycat...plz do not copy me
+**i hate copycat...plz do not copy me**
 
 Welcome to chat and make friends!^^
 i'd like a friend who speaks Spanish, since i‘m practicing
